@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Robeszpier4
+- 👀 I’m interested in playing games and programming
+- 🌱 I’m currently learning at Berzsenyi Dániel Gimnázium
+- 📫 How to reach me: mihalyffyrobi7@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: 
