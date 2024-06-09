@@ -3,4 +3,3 @@
 - 🌱 I’m currently learning at Berzsenyi Dániel Gimnázium
 - 📫 How to reach me: mihalyffyrobi7@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: 
